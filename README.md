@@ -1,1 +1,0 @@
-# aigsq.github.io
